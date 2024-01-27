@@ -1,1 +1,1 @@
-# CelebrityCLB.github.io
+# Celebrity-CLB.github.io
